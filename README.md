@@ -1,3 +1,3 @@
-# qzmink.github.io
+# Well, this is a blank page.
+
 _
-Well, this is a blank page.
